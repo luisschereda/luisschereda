@@ -36,4 +36,4 @@ Amo o Brasil 🇧🇷🫀
 
 
 
-!.[.](https://media.tenor.com/nrKvoJ2i8_0AAAAC/bolsonaro-2018.gif)
+
