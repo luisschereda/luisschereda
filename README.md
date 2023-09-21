@@ -8,13 +8,18 @@ Meu nome é Luís Miguel🫀
 
 ✝️Crux Sacra Sit Mihi Lux✝️
 
+
  Non Draco Sit Mihi Dux
+
  
  Vade Retro Satana
  
+ 
  Non Suade Mihi Vana
+
  
  Sunt Mala Quae Libas
+
  
  Ipse Venea Bibas.
  
