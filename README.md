@@ -35,5 +35,3 @@ Instagram: @luis.scheredaa
 Amo o Brasil 🇧🇷🫀
 
 
-
-
