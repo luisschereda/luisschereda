@@ -35,3 +35,6 @@ Instagram: @luis.scheredaa
 Amo o Brasil 🇧🇷🫀
 
 
+![](https://media.tenor.com/pwxV91vxbKIAAAAC/lula-da-silva-jair-bolsonaro.gif)
+
+
